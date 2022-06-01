@@ -2,7 +2,7 @@
 
 - 👋 oi, eu sou @jhonatanfoz
 - 👀 estou interesado em dominar o mundo
-- 🌱 atualmente estou aprndendo a ser um bom jogador de LOL
+- 🌱 atualmente estou aprendendo a ser um bom jogador de LOL
 - 💞️ procuro colaborar com a paz no mundo
 - 📫 como me achar: jhonatan.foz@escola.pr.gov.br
 
